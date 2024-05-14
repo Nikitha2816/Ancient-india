@@ -1,1 +1,3 @@
-# Ancient-india
+India is a country in South Asia whose name comes from the Indus River. The name 'Bharata' is used as a designation for the country in their constitution referencing the ancient mythological emperor, Bharata, whose story is told, in part, in the Indian epic Mahabharata.
+
+According to the writings known as the Puranas (religious/historical texts written down in the 5th century CE), Bharata conquered the whole subcontinent of India and ruled the land in peace and harmony. The land was, therefore, known as Bharatavarsha (`the subcontinent of Bharata'). Hominid activity in the Indian subcontinent stretches back over 250,000 years, and it is, therefore, one of the oldest inhabited regions on the planet.
